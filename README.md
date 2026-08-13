@@ -41,6 +41,6 @@ No identifying details.
 
 For anything related to the projects on this account:
 
-**📧 [yourmail@example.com](mailto:yourmail@example.com)**
+**📧 [toniroyale01@gmail.com](mailto:toniroyale01@gmail.com)**
 
 > The repositories can do the talking.
